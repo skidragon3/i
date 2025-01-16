@@ -1,0 +1,9 @@
+# Why Learn Logic?
+
+Etymology:
+> ![alt text](image.png)
+https://www.etymonline.com/word/logic#etymonline_v_12393
+
+Logic allows one to ensure that the argument is valid and sound. It allows one to build their own arguments and to stay on guard when logical fallacies present themselves whether in one's own premises or the opponent using a logical fallacy against thee. There are many logical fallacies: red herring, lady in the red dress which steers the argument in a totally different direction; strawman where the argument becomes misconstrued, slippery slope fallacy where one event causes an inevitable outcome of another event usually the subsequent event(s) are negative, false dilema where 2 choices are presented but there are actually more options which occurs in everyday life like grocery shopping where only 2 products are presented, equivocation where ambiguous language is used like in legalese, to overwrite a word's definition with another definiton, and much more. 
+
+i am starting to see that many people commit these fallacies everyday in modern science, politics, and other subjects. Cherry picking materials to support the stance for the argument to have a certain conclusion is plain wrong. For example, 9 out of 10 dentists recommend this toothpaste, if there are 1 million dentists but the product company only asks the opinion of 10 dentists that have a high probability of supporting their claims, what would be the result of that? They could have been dentists that could have had a monetary interest in recommending the product. We also need to stop picking articles from wikipedia, quora, or reddit and say its the Bible when its not. Also labeling people a certain term/name calling to discredit their stance keeps one from knowing the conclusion of the full argument.
