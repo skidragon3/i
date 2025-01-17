@@ -1,5 +1,7 @@
 # i
 
+## All information that is in this repository should not be construed as legal advice, health advice, or any advice, this is for education purposes only.
+
 ## Intro
 The lowercase i is intentional, thou (you) may interpret it however thou wishes. Dates will be formatted as DD-MM-YY. i as a man will document all of the knowledge that i am permitted to write. i will write about in my own words on the books that i have read, the experiences that i have experienced, the dreams that i have dreamt, my current ideas of how the world works, and experimental ideas. i want to write about topics such as spirituality, philosophy, law, economics, computer science, science, qi gong, fascia maneuvers, health, memory, drawing and other topics that have made an impact in my life. Another note is that i will use "thou" or "thee" in place of "you" and "thy" or "thine" for "your"; The reason being is to respect the readers as we are made in the image of our creator. The other reason "ewe" is also pronounced as "you" and here is what etymology defines ewe.
 
