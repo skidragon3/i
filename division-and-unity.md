@@ -15,6 +15,8 @@ Another way to think of the idea of division and unity is through lego pieces, e
 ## Music Example
 Music may have a harmonic rhythm and perfect combination of tones/notes that do not conflict with one another. When disharmonic tones are played at the same time, there is disharmony or division. One can distinguish combination of disharmonic tones than harmonic tones. The unbalanced rhythm and tones do not set right with us. This creates conflicts in our ears, soul, and etc. It does not resonate, we want to turn off the music.
 
+## Definitions create Division and Relationships create Unity.
+
 ## Scales of Justice
 
 ## Heaven and Earth
