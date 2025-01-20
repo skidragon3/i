@@ -17,7 +17,7 @@ Music may have a harmonic rhythm and perfect combination of tones/notes that do 
 
 ## Definitions create Division and Relationships create Unity.
 
-## Scales of Justice
+## Scales of Justice, how division creates unbalance while unity creates balance.
 
 ## Heaven and Earth
-A purpose from the heavens is different from the purpose of the earth however when combined, creates the whole purpose.
+A purpose from the heavens is different from the purpose of the earth however when combined, creates the whole purpose. The feeling of being unfufilled in life is because we are divided from the heavens and staying only in the realm of earth. The two are not united and one feels unfufilled. Full healing occurs when we tune-in to the whole rather than staying in a division because the full spectrum of resources are available. How one tunes in to the spectrum of heaven or spirituality is another story.
