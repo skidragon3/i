@@ -13,7 +13,9 @@ Grammar uses symbols which are combined into a more complex symbol, for example,
 
 Logic is important to ensure we logically create our arguments which derives from sound and valid premises; foundational, supporting statements to support the argument. Fallacies clutter the internet and it is hard to discern from what it is true and what is false. We may increase the probability to discern correctly through logic. People want to be right and while emotions allow one to stay in motion, it may play as a double edge sword creating an opposing force keeping the living being at a stand still which results in a plateau in one's faculties and evolution. Zelda needs to unveil the true intentions of a man or woman to decipher what is "good" and what is "evil".
 
-Rhetoric uses the art of communication to move the audience. It uses the right communication method for the targeted audience. This distinguishes leaders from followers as leaders makes big impacts on society. They can use incorrect grammar in a language or be 100% incorrect in their arguments but their mission is to essentially direct the audience to their intended destination. Ganon is the symbol of power and has put society into the dark ages in Ocarina of Time. He made things happen in his own image.
+Rhetoric uses the art of communication to move the audience. It uses the right communication method for the targeted audience. This distinguishes leaders from followers as leaders makes big impacts on society, though a follower may be a leader in their own right therefore not mutually exclusive. They can use incorrect grammar in a language or be 100% incorrect in their arguments but their mission is to essentially direct the audience to their intended destination. Ganon is the symbol of power and has put society into the dark ages in Ocarina of Time. He made things happen in his own image.
+
+
 
 ## Grammar
 
