@@ -84,3 +84,16 @@ valere - strength, power
 videre - to see
 
 vocare - to invoke
+
+bis dat qui cito dat - One who gives promptly, gives twice (one who is on time or gives on time is valued highly than their counterpart)
+
+respondere - to respond
+
+saepe pecamus - we often sin (we often make mistakes)
+
+festina lente - make haste slowly (make haste carefully)
+
+hodie - today
+
+
+
