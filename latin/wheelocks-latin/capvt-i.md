@@ -97,3 +97,22 @@ hodie - today
 
 
 
+## Exercises
+
+7. Monent me si erro - They tell me when i make a mistake.
+8. Monet me si errant - He tells me if they make a mistake.
+9. Monete me si errat - Tell me if its malfunctioning.
+10. Debes monere me - Thou should warn me.
+11. Debetis servare me - You all should protect me.
+12. Non debent laudare me. - They need not to praise me.
+13. Quid dat? Saepe nihil dat. - What does he give? He often gives nothing.
+14. Me saepe vocant et monent - They often call me and remind me.
+15. Nihil video. Quid vides? - i do not see anything. What do thou see?
+16. Me lauda si non erro, amabo te - Praise me if i do not make a mistake, please.
+17. Si valetis, valemus - If you all are doing well, we are doing well.
+18. Si valet, valeo - If he is well, i am well.
+19. Si me amat, debet me laudare - If he loves me, he should praise me.
+20. Conservate me - Save me!
+21. Non debeo errare - I should not make mistakes.
+22. Quid debemus laudare? - To what should we praise?
+23. Videt; cogitat; monet. - He saw; he plans; he advises.
