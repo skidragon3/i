@@ -102,3 +102,14 @@ pecus - cattle
 14. Puellae nihil datis - All you girls offer nothing.
 15. Pecuniam puellae videt - The girl sees the money.
 16. Pecuniam puellarum non vides - Thou does not see the girls' money.
+17. Monere puellas debemus - We should warn the girls.
+18. Laudare puellam debent - 
+19. Vita multis puellis fortunam dat
+20. Vitam meam pecunia tua conservas
+21. Fama est nihil sine tortuna
+22. Vitam sine pecunia non amatis
+23. Sine fama et fortuna patria non valet
+24. Iram puellarum laudare non debes
+25. Vitam sine poenis amamus
+26. Sine philosophia non valemus
+27. Quid est vita sine philosophia?
